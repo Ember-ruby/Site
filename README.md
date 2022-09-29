@@ -1,1 +1,1 @@
-If you yell at me for bad decisions here i will make it worse :)
+If you yell at us for bad decisions here we will make it worse :)
